@@ -1,1 +1,1 @@
-# Designs
+#These original designs and files are for the community to use however you see fit. Print them, modify them, and use them to build your own personal products. Seriously—steal whatever you like from here. If you want to show some love by crediting us or sending your remixes our way, we’d love to see what you make. Most importantly, have fun with it. We’ll be dropping more files as time goes on, so stay tuned to our Instagram for updates
